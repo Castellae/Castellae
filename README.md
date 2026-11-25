@@ -6,7 +6,7 @@
 
   <h1> ༄ Ouro / Eden ˙༄.°</h1>
   <p><i>They/Any 𓇼 17 ~ 12/12 </i></p>
-  <a href="https://github.com/bryceslop">My brother!</a>
+  <a href="https://github.com/bryceslop">My chud brother</a>
 
 
 
