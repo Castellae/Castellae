@@ -12,18 +12,18 @@
 
 <hr>
 
-<h3 id="about" align="center">₊˚⊹ About ⊹˚₊</h3>
+<h3 id="about" align="center">⁀➷ About </h3>
 <p align="center">
 Hai I like people watching and chilling with friends. I mainly hang around the bakery. Usually a pony from whatever Im currently fixated on, for now its Overwatch! 
 </p>
 
 <p align="center">
-A hopless Hanzo kinnie
+Hanzo Shimada kinnie
 </p>
 
 
 <div id="dni" align="center">
-  <h3>₊˚⊹ BYF & DNI ⊹˚₊</h3>
+  <h3> ⪼--BYF & DNI--➢</h3>
   <p><b> Im not a very sociable person I prefer my space from others, although that doesnt mean I am against interacting with people. You are welcome to chat with me just be warned Im not good with carrying conversations if I do not know you! I might be a little slow to respond or react since Im off tab most of the time on PT. Idm C+H! </p>
   <p><b>Do Not Interact:</b> Basic DNI criteria, esp proship! Dont joke about Shimadacest I'll block you on the spot.</p>
   
