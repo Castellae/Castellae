@@ -13,9 +13,9 @@
 
 <hr>
 
-<h3 id="about" align="center">₊˚⊹ About Me ⊹˚₊</h3>
+<h3 id="about" align="center">₊˚⊹ About ⊹˚₊</h3>
 <p align="center">
- Im not a very sociable person I prefer my space from others, although that doesnt mean I am against interactoing with people. You are welcome to chat with me just be warned Im not good with carrying conversations if I do not know you! 
+Hai I like people watching and chilling with friends. I mainly hang around the bakery. Usually a pony from whatever Im currently fixated on, for now its Overwatch! 
 </p>
 
 <p align="center">
