@@ -27,7 +27,7 @@ A hopless Hanzo kinnie
 
 <div id="dni" align="center">
   <h3>₊˚⊹ BYF & DNI ⊹˚₊</h3>
-  <p><b> Im not a very sociable person I prefer my space from others, although that doesnt mean I am against interactoing with people. You are welcome to chat with me just be warned Im not good with carrying conversations if I do not know you! I might be a little slow to respond or react since Im off tab most of the time on PT. Idm C+H! </p>
+  <p><b> Im not a very sociable person I prefer my space from others, although that doesnt mean I am against interacting with people. You are welcome to chat with me just be warned Im not good with carrying conversations if I do not know you! I might be a little slow to respond or react since Im off tab most of the time on PT. Idm C+H! </p>
   <p><b>Do Not Interact:</b> Basic DNI criteria, esp proship! Dont joke about Shimadacest I'll block you on the spot.</p>
   
   <br>
